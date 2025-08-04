@@ -27,6 +27,7 @@
 - 📫 Reach me at: [adel15omar1@gmail.com](mailto:adel15omar1@gmail.com)
 - 💼 LinkedIn: [linkedin.com/in/adel-sayed-m41135](https://linkedin.com/in/adel-sayed-m41135)
 - 🧑‍💻 GitHub: [Adelsayed411](https://github.com/Adelsayed411)
+- 📱 Phone: +201115195568
 
 <br/>
 
